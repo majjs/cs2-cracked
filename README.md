@@ -1,6 +1,6 @@
 # SOURCE IS CLOSED SO CS WONT DETECT (VALVE)
 
-
+spoiler its neverlose
 
 
 
