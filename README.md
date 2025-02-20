@@ -479,7 +479,6 @@
 
 
 
-this shit is a malware btw it sends me your pc info (this is on you not on me you were the one that wanted to download cheats by just not looking at code)
 
 
 
